@@ -2,6 +2,6 @@
 
 # UTS KSI - IRSAN ROMARDI HARAHAP 120140043
 
-# [Link Laporan Pengerjaan KSI](https://drive.google.com/file/d/1-h1lPgz8HD2TrI_WLW855spQR_-D1g6E/view?usp=share_link)
+# [Link Laporan Pengerjaan KSI](https://drive.google.com/drive/folders/1S2dHZu5mimRP5bSMQaQoEelXUu4sqWaQ?usp=share_link)
 
 | 120140043 | IRSAN ROMARDI HARAHAP
